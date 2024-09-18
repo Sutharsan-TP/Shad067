@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing ._.
 - 📫 How to reach me? O.o
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: You can also call me Kage 
+- ⚡ Fun fact: You can also call me Shad
 
 <!---
 Shad067/Shad067 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
