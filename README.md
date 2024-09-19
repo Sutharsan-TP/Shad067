@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Shad067 (Shadow)
 - 👀 I’m interested in Coding and Studying
 - 🌱 I’m currently learning py and C
-- 💞️ I’m looking to collaborate on nothing ._.
-- 📫 How to reach me? O.o
+- 💞️ I’m looking to collaborate with my friends ._.
+- 📫 How to reach me? Why? O.o
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: You can also call me Shad
 
